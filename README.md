@@ -1,5 +1,5 @@
 ### Welcome in!
-First of all: My e-mail is not moving. Will get it back working in feb.
+First of all: My e-mail is not working. Will get it back working in feb.
 I'm a human that manages websites, likes IT and other stuff.
 Have a nice day!
 
