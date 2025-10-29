@@ -4,8 +4,7 @@ i also go by whatbeato and headpatsyou sometimes
 
 --
 
-club ops and eng @ hack club
-i also dabble in events
+club ops and eng @ hack club (i also dabble in events)
 
 curious about my work? https://lynn.pt/
 
