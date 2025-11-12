@@ -4,7 +4,9 @@ i also go by whatbeato and headpatsyou sometimes
 
 --
 
-club ops and eng @ hack club (i also dabble in events)
+i do club operations and engineering @ [hack club](https://hackclub.com)
+
+i was a summer intern and an event organizer for them too.
 
 curious about my work? https://lynn.pt/
 
